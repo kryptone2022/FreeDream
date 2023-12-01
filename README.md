@@ -1,3 +1,5 @@
 # FreeDream
-Have fun with github !
-😉😉😉
+A cybersecurity enthusiast who likes phonk
+🥰🤩😍😵🤑😵‍💫😈
+
+
